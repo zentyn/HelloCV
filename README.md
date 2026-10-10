@@ -1,2 +1,1 @@
-学习任务https://www.yuque.com/u70698000/dgxvu3/nbrd27c3otxdriii
-实践任务https://www.yuque.com/u70698000/dgxvu3/gehooe1g9z1ggb15
+https://www.yuque.com/g/u70698000/dgxvu3/collaborator/join?token=5kjGO4FP4jqhiQvS&source=book_collaborator# 邀请你共同编辑知识库《718任务》
